@@ -2,4 +2,4 @@
 
 怎么可以的，[○･｀Д´･ ○]
 
-- [test.md](test.txt)
+- [test.txt](test.txt)
