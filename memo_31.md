@@ -75,7 +75,8 @@
 
 抓到一只小色猫
 
-![](images/IMG_0723.jpg)
+![](images/683472E9-3EBD-4D94-835A-84F1FB2C746B.jpeg)
+
 
 
 
